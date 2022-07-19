@@ -1,3 +1,3 @@
-Previously completed problems & Notes
+Past Notes from (UOFT Lecture) OR (somewhere). 
 
-Most of the problems comes from assignments. & Probably, the only person who can under stand my notes, is myself.(probably)
+I 看不懂, 
