@@ -1,1 +1,3 @@
-The information is usually not as "completed" because there exists something called slides.
+Previously completed problems & Notes
+
+Most of the problems comes from assignments. & Probably, the only person who can under stand my notes, is myself. I dont copy slides... 
